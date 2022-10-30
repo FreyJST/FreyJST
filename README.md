@@ -1,1 +1,1 @@
-sudo rm -rf World
+sudo rm -rf Bugs
