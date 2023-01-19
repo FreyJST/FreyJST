@@ -1,1 +1,1 @@
-sudo rm -rf Bugs
+# sudo rm -rf Bugs
