@@ -1,3 +1,4 @@
-sudo rm -rf World
+![pink_pussy](https://i.makeagif.com/media/5-14-2017/kiFczG.gif)
 
-About :- https://frey0xd.tech
+
+Info :- Visit My Website For More Info 
