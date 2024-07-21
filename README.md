@@ -1,2 +1,5 @@
-![pink_pussy](https://i.makeagif.com/media/5-14-2017/kiFczG.gif)
+Visit - https://freyxfi.github.io/website 
 
+I am 23 y/o Pentester and MMA Player 
+
+2024 = Focusing on web Testig 
