@@ -1,4 +1,4 @@
-Visit - https://freyxfi.github.io/website 
+Visit - https://freyxfi.github.io/
 
 I am 23 y/o Pentester and MMA Player 
 
